@@ -1,0 +1,1 @@
+My name is Wesley Lynch. I am a recent graduate from the Amped Workforce Technology Training program. Im now attempting to complet my pre-work for code you. Im 36 years old and looking to find an entry level position in Information Technology.
